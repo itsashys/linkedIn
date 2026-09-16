@@ -1,6 +1,6 @@
 
 
-![Binini](/assets/D_NQ_NP_669532-MLM83440997280_042025-O.webp)
+![Binini](/D_NQ_NP_669532-MLM83440997280_042025-O%20(1).webp)
 # Renny Doodle 
 ### Doctor | Dance Teacher | *Alpha*  (๑•᎑•๑)
 [Maple Hospital](https://MapleHospital.org)
